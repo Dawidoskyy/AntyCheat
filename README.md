@@ -1,3 +1,4 @@
+[img]https://imgur.com/sSJXqDE[/img]
 Anty cheat made by Dawidoskyy#0329
 Features:
 -Anty Weapon hack
